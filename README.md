@@ -3,7 +3,7 @@ Or Ezekiel, whatever the name change after that too
 Student at MALANG STATE UNIVERSITY - English literature
 socials:
 - insta
-  @untrained.mutt (main account, family, irl friends, n stuff)
+  https://instagram.com/@untrained.mutt (main account, family, irl friends, n stuff)
   https://instagram.com/@loserrfvck (second account, the real side of this person)
 - Threads
   https://threads.com/@loserrfvck
