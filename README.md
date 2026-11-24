@@ -24,3 +24,8 @@ Student at MALANG STATE UNIVERSITY (Student number 240222606566) - English liter
 - 3573046202060003
 - 3573040606790015 (the dad)
 - 3573044412760007 (the mother)
+# EMAILS
+- natelie.nazwa.2402226@students.um.ac.id
+- cvavxf505@gmail.com
+- natelienajwam@gmail.com
+- throwawaygenshin505@gmail.com
