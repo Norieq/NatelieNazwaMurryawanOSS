@@ -1,6 +1,7 @@
 # NatelieNazwaMurryawanOSS.
 Or Ezekiel, whatever the name change is after that. -FTM
 Student at MALANG STATE UNIVERSITY (Student number 240222606566) - English literature.
+Ex-swimming athlete
 # Socials
 - insta
   - https://instagram.com/@untrained.mutt (main account, family, irl friends, n stuff)
